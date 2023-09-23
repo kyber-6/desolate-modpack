@@ -1,1 +1,1 @@
-[![Rent a Minecraft Server](https://i.imgur.com/l815YIN.png)](https://bisecthosting.com/PixelDream)
+[![Rent a Minecraft Server](https://www.bisecthosting.com/images/CF/Desolate/BH_D_Promo.webp)](https://bisecthosting.com/PixelDream)
